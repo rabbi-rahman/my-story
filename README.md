@@ -1,2 +1,2 @@
 # my-story
-this is my live story
+this is my life story
